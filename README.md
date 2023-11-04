@@ -1,4 +1,4 @@
-![Screenshot 2023-11-04 at 2 23 24 PM](https://github.com/alexandrab319/alexandrab319/assets/120283002/f4acd529-6336-4935-b644-ea989618a0fe)
+![unnamed](https://github.com/alexandrab319/alexandrab319/assets/120283002/ff94b718-8f67-4a03-9f6c-157137a7e5d3)
 
 <!--
 **alexandrab319/alexandrab319** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
